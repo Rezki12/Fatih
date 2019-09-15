@@ -1,0 +1,2 @@
+# Fatih
+Tetap berusaha
